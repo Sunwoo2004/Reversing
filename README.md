@@ -7,6 +7,11 @@
 [![Video Label](http://img.youtube.com/vi/1C_Xw9J4-Rc/0.jpg)](https://youtu.be/1C_Xw9J4-Rc)
 
 
+크랙미 개발 및 크랙 시연 
+
+[![Video Label](http://img.youtube.com/vi/GN0W9OoI-yk/0.jpg)](https://youtu.be/GN0W9OoI-yk)
+
+
 크랙미 #1
 
 [![Video Label](http://img.youtube.com/vi/B_4illyXVgM/0.jpg)](https://youtu.be/B_4illyXVgM)
